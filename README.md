@@ -33,16 +33,14 @@ I am also a huge fan of anything math related
                        🌓　•　　.°•　　
  　
 🚀.                       ✯
-
-          ★　*　　　　　°
+★　*　　　　　°
 ✯
 　　　　.         🛰 　°·　　
        *         . 
      
  *    🪐 .  *         • ° • ...   
 
-.　　　•　° ★　• 
-                                
+.　　　•　° ★　•                     
              ☀️       
            ️            ☄️
                  ☄️ 
